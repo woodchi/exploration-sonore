@@ -1,1 +1,1 @@
-# exploration-sonore
+# Journée de Co-création Sonore (voire carrément musicale)
