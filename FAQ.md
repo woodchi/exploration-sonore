@@ -38,7 +38,7 @@ Ne te prive pas de cette super journée pour des problèmes matériels, contacte
 ### Inscription et Contact
 Pour t’inscrire, il suffit d’envoyer un mail à
 [Luigi](mailto:luigi.notarangelo@gmail.com),
-[Aude] (mailto:aude.chagnon@gmail.com)ou [Alex](mailto:alexsanga@gmail.com)
-N’hésite pas aussi à écrire à [Aude] (mailto:aude.chagnon@gmail.com) pour toute question concernant la journée, elle se fera un plaisir de te répondre !
+[Aude](mailto:aude.chagnon@gmail.com)ou [Alex](mailto:alexsanga@gmail.com)
+N’hésite pas aussi à écrire à [Aude](mailto:aude.chagnon@gmail.com) pour toute question concernant la journée, elle se fera un plaisir de te répondre !
 
 
