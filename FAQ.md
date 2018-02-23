@@ -11,7 +11,7 @@ L’idée est d’explorer, en petit groupe et dans plusieurs endroits de Montpe
 Les curieux, et plus précisément, toute personne amenée à travailler en équipe, ou souhaitant développer sa créativité ou son écoute. Il suffit d’être muni d’une paire d’oreilles pour être capable de cette co-création, grâce au pouvoir du groupe ! Chiche ? 
 
 ### C’est où et quand ?
-Le  mercredi 7 mars à Montpellier, de 9h30 à 17h
+Le  mercredi 7 mars à Montpellier, de 9h30 à 17h, devant le théâtre de la Comédie.
 
 ### Je me sens pas au niveau…
 Rassure-toi, nous non plus :-) 
